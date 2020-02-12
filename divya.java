@@ -1,10 +1,3 @@
 akdnlkankvklsv
 asdfksdhfvmna.sv
-agfjshvkjlnasaBCHJbckm
-SDAFHJKVN
-FGIDOFJknlkas
-gagjkldagnkoaklag
-akvnadjknvkadjvlkjkm
-jknknljn
-jhkjnlmnlm
-jkjnlnjbjnk
+agfjshvkjlnask
